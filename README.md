@@ -1,4 +1,4 @@
-# KEONGOTTIN4CD[keongotonghop4.html](https://github.com/user-attachments/files/24116074/keongotonghop4.html)
+#[keongotonghop4.html](https://github.com/user-attachments/files/24116074/keongotonghop4.html)
 <!DOCTYPE html>
 <html lang="vi">
 <head>
